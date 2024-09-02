@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Joinice Mensah
+- 👀 I’m interested in **E-commerce, Dropshipping, Web Design, and Marketing.**
+- 🌱 I’m currently learning **Advanced E-commerce Strategies and AI Integration in Business.**
+- 💞️ I’m looking to collaborate on **E-commerce projects, digital marketing campaigns, and web development.**
+- 📫 How to reach me: **+228 79 87 92 35 / 79 78 86 68** or **via my Facebook page: [JoiniceMoney](https://www.facebook.com/moneyjoinice/)**
+- 😄 Pronouns: **He/Him**
+- ⚡ Fun fact: **I’m passionate about using technology to empower entrepreneurs and small businesses.**
